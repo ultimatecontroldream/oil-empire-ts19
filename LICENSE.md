@@ -1,4 +1,4 @@
-#  
+#  Experience oil empire like never before with oil empire Script secure, the #1 Script. Includes custom skins and auto-farm for unbeatable performance.
 
 
 
